@@ -4,12 +4,12 @@ All 214 verses
 
 # “GOD IS” Growth Guide
 This is going to take lots of time, but it will be worth it.  Here’s what you can do:
+- Look up each Bible reference (either in a paper Bible or online).
+- Ask the Holy Spirit, “Lord, what does this say about you? And what does it mean for me?”
+- If something doesn’t make sense to you, maybe look up the verse in a different translation or language (in English try the NIV, NLT, KJV, MSG, NET, NRSV, and others).
+- Remember that whatever translation you are reading is not the original Hebrew or Greek; it is an attempt to translate the concepts into your language from the original text.
+- Also consider reading the verses before and after the reference listed, so you can get a feel for the context.
 
-Look up each Bible reference (either in a paper Bible or online).
-Ask the Holy Spirit, “Lord, what does this say about you? And what does it mean for me?”
-If something doesn’t make sense to you, maybe look up the verse in a different translation or language (in English try the NIV, NLT, KJV, MSG, NET, NRSV, and others).
-Remember that whatever translation you are reading is not the original Hebrew or Greek; it is an attempt to translate the concepts into your language from the original text.
-Also consider reading the verses before and after the reference listed, so you can get a feel for the context.
 And most importantly: Pray!  Before, during, and after, keep asking God to speak to you through His Word. Ask Him to open your heart and mind to His voice. And invite the Lord to silence the voice of “The Deceiver” Satan who whispers in your ear.
 
 How ever long it takes you, as you prayerfully walk through the Bible, we trust that you will be shaped and formed by the Spirit of God and the power of His Word.
