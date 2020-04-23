@@ -1,8 +1,8 @@
 # GodIs
-https://mw.church/Godis/...now with hyperlinks
+[https://mw.church/Godis/](https://mw.church/Godis/) ...now with hyperlinks
 All 214 verses
 
-“GOD IS” Growth Guide
+# “GOD IS” Growth Guide
 This is going to take lots of time, but it will be worth it.  Here’s what you can do:
 
 Look up each Bible reference (either in a paper Bible or online).
@@ -17,7 +17,7 @@ How ever long it takes you, as you prayerfully walk through the Bible, we trust 
 In Christ,
 Pastor Joel
 
-#Our God Is…
+# Our God Is…
 - Love	[1John 4:16](http://www.biblegateway.com/passage/?search=1John4:16&version=NLT)
 - Spirit	[John 4:24](http://www.biblegateway.com/passage/?search=John4:24&version=NLT)
 - The Holy One	[Psalm 16:10](http://www.biblegateway.com/passage/?search=Psalm16:10&version=NLT)
@@ -117,7 +117,7 @@ Pastor Joel
 - Receiving All the Glory	[1 Cor. 10:31](http://www.biblegateway.com/passage/?search=1Cor.10:31&version=NLT)
 - Worthy of Praise	[Psalm 18:3](http://www.biblegateway.com/passage/?search=Psalm18:3&version=NLT)
 - Saying to Everyone, “Surely I Am Coming Quickly.” Amen	[Revelation 22:20](http://www.biblegateway.com/passage/?search=Revelation22:20&version=NLT)
-#We Are…
+# We Are…
 - Loved by God	[John 3:16](http://www.biblegateway.com/passage/?search=John3:16&version=NLT)
 - Forgiven	[Colossians 1:14](http://www.biblegateway.com/passage/?search=Colossians1:14&version=NLT)
 - Confessing the Lordship of Jesus Over Our Lives	[Philippians 2:11](http://www.biblegateway.com/passage/?search=Philippians2:11&version=NLT)
